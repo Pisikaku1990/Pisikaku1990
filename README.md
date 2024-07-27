@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Pisikaku1990
+- 👀 I’m interested in learning new ideas 
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate on any new ideas that will make the world a better place.
+- 📫 How to reach m. Promise Isikaku on Facebook 
+- ⚡ Fun fact: i love making New friends 
